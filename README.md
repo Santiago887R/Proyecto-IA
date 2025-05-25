@@ -8,3 +8,8 @@
 - Luz Yadira Ramirez Rojas.
 - CC : 43908906
 - Programa: Ingenieria Industrial
+
+
+
+Link de avance del proyecto:
+https://youtu.be/F1rpMRqcb78?si=lnfLUivwALWcHADa
