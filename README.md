@@ -12,4 +12,4 @@
 
 
 Link de avance del proyecto:
-https://youtu.be/F1rpMRqcb78?si=lnfLUivwALWcHADa
+https://youtu.be/Gi7QNmGPBJY
