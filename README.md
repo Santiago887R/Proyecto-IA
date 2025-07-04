@@ -13,3 +13,6 @@
 
 Link de avance del proyecto:
 https://youtu.be/Gi7QNmGPBJY
+
+Link de video de entrega final del proyecto:
+https://youtu.be/swKo0myec7o
